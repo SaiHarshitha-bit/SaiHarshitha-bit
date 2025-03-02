@@ -1,7 +1,7 @@
 # Hi, I'm Sai Harshitha 👋  
 
 🌱 **About Me:**  
-- 💼 HR Intern at Renu Sharma Foundation & The Entrepreneurship Network  
+- 💼 HR Intern at TEN:BOOK Engine
 - 🎯 Aspiring HR Professional & Future Entrepreneur  
 - 💬 Passionate about Digital Marketing & AI-powered Assistive Tech  
 
